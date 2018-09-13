@@ -1,5 +1,3 @@
-# This folder contains the materials for our academic project at HSE.
-
 # Semantic brain map
 
 ### О проекте
