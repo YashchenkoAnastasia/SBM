@@ -13,7 +13,7 @@
 
 - Настя:  yashchenko.anastasia.v@gmail.com
 - Даня: mytasmic@gmail.com
-- Артём: artic-st952@mail.ru
+- Артём: stepartm@gmail.com
 - Амир: amirbakarov@gmail.com
 
 ### Роли в написании статьи
